@@ -1,12 +1,12 @@
 ---
-
 author: Fernando Almeida
 title: Gideão (Juízes 6 a 8)
-
 ---
 \pagebreak
 
-## Introdução (Capítulo 6)
+## (Capítulo 6)
+
+## Introdução 
 
 Governo dos Midianitas
     - 7 anos
@@ -72,7 +72,9 @@ Gideão pede outro sinal
 ---
 \pagebreak
 
-## Convocação e Preparação para a batalha (Capítulo 7)
+## (Capítulo 7)
+
+## Convocação e Preparação para a batalha 
 
 Gideão acampu perto da fonte de Harode
 
@@ -123,7 +125,9 @@ Trouxeram as cabeças para Gideão
 ---
 \pagebreak
 
-## O retorno de Gideão (Capítulo 8)
+# Capítulo 8
+
+## O retorno de Gideão 
 
 O pessoal de Efraim veio tirar Gideão pra loke "mimimi pq nao me chamaro pra lutar contra os midianitas em???
 
