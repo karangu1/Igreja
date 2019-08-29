@@ -4,7 +4,7 @@ title: Gideão (Juízes 6 a 8)
 ---
 \pagebreak
 
-## (Capítulo 6)
+# Capítulo 6
 
 ## Introdução 
 
@@ -70,9 +70,10 @@ Gideão pede outro sinal
     - Deus tbm faz
 
 ---
+
 \pagebreak
 
-## (Capítulo 7)
+# Capítulo 7
 
 ## Convocação e Preparação para a batalha 
 
