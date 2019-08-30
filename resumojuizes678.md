@@ -152,9 +152,19 @@ Os reis Zeba e Zalmuna estavam em Carcor com 15 mil homens, que eram os que sobr
 
 Dizque foram 120 mil soldados mortos
 
-Gideão foi pelo caminho dos nômades 
+Gideão foi pelo caminho dos nômades, a leste de Noba e Jogbeá e acabou com o exercito inimigo
 
+Retornou então por Heraes. Foi para Sucote e matou tudo os caboclo de lá por duvidarem dele, como ele ja tinha dito
 
+Foi pra Peniel e fez a mesma coisa
+
+Depois disso Gideão vai falar com os reis e descobre que eles mataram seus irmãos e sua mãe 
+
+Então Gideão fala pro seu filho Jéter, primogênito, pra matar os reis, mas ele não consegue pq era muito novo. Aí acabou que Gideão mesmo matou os reis. Após isso, ele pegou os enfeites dos camelos deles.
+
+Gideão se negou a ser rei do povo pois ele sabia que o governo ia vir de Deus. Gideão pega então um brinco de cada um dos israelitas que pegaram dos midianitas. Os brincos eram de ouro. Gideão fez então um manto sacerdotal e colocou em Ofra. O total de ouro foi mais de 20 quilos e meio.
+
+Israel teve descanso novamente por quarenta anos
 
 
 
